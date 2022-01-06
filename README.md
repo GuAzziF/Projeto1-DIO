@@ -19,11 +19,11 @@
 - Essência de baunilha a gosto
 - Chocolate granulado para decorar
 #### Preparo:
-1- Bata os ovos com a cenoura, o açúcar, o leite (ou suco de laranja) e o óleo no liquidificador por cerca de 4 minutos ou até obter uma mistura uniforme.
-2- Despeje sobre a farinha misturada com o fermento e mexa até incorporar completamente.
-3- Disponha em fôrma retangular (22 x 32 cm) untada e enfarinhada.
-4- Asse em forno médio preaquecido (200 ºC) por cerca de 40 minutos ou até dourar.
-5- Depois de morno, regue com a calda de chocolate, polvilhe granulado e sirva em pedaços.
+1. Bata os ovos com a cenoura, o açúcar, o leite (ou suco de laranja) e o óleo no liquidificador por cerca de 4 minutos ou até obter uma mistura uniforme.
+2. Despeje sobre a farinha misturada com o fermento e mexa até incorporar completamente.
+3. Disponha em fôrma retangular (22 x 32 cm) untada e enfarinhada.
+4. Asse em forno médio preaquecido (200 ºC) por cerca de 40 minutos ou até dourar.
+5. Depois de morno, regue com a calda de chocolate, polvilhe granulado e sirva em pedaços.
 ##### Cobertura:
-1- Dilua o amido no leite em uma panela.
-2- Junte o açúcar e o chocolate em pó e leve ao fogo médio, mexendo sempre, até encorpar.
+1. Dilua o amido no leite em uma panela.
+2. Junte o açúcar e o chocolate em pó e leve ao fogo médio, mexendo sempre, até encorpar.
